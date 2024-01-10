@@ -1,6 +1,6 @@
 # My Wallpaper Designs
 
-[download full pack](https://github.com/yeswaraditya/Wallpapers/files/13624954/WallpaperDrop-1.zip)
+[download Full pack](https://github.com/yeswaraditya/Wallpapers/files/13624954/WallpaperDrop-1.zip)
 
 
 ## Candy
