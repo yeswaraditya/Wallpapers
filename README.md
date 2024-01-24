@@ -1,4 +1,4 @@
-# My Wallpaper Designs
+# My Wallpaper Design
 
 [download Full pack](https://github.com/yeswaraditya/Wallpapers/files/13624954/WallpaperDrop-1.zip)
 
